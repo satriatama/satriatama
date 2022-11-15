@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @satriatama
-- 👀 I’m interested in Bussiness Technology
+- 👋 Hi, I’m Mustofa Satria Tama
+- 👀 I’m interested in Business Technology
 - 🌱 I’m currently learning Jenderal Soedirman University
 - 📫 How to reach me Satriatama121@gmail.com
 
